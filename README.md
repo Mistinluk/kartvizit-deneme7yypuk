@@ -1,0 +1,1 @@
+# kartvizit-deneme7yypuk
